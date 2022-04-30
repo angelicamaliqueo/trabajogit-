@@ -4,7 +4,7 @@
 
 Estas aquí para apremder a dezarrollar tus avilidades para progranar hasta un nivel en el puedas: 1️⃣ Comseguir trabajo, 2️⃣ Crear tu propia empresa y/o 3️⃣ Adaptarte mejor al nuevo mumdo. 
 
-## Lo que ya zabíaz
+## Lo que ya sabías
 
 Tambiém estas aquí porque necesitas alluda, no sólo técnica sino tanbién espiritual. Digo esto de la manera más pragmática poisble.
 
